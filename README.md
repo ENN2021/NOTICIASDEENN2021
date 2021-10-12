@@ -1,0 +1,2 @@
+# NOTICIASDEENN2021
+La llegada del COVID-19 produjo grandes alteraciones en la economía del país, llevando a muchos negocios a la pérdida de dinero o al cierre permanente. Sin embargo, la inmobiliaria de Girona Inmomerkat explica que se ha visto una creciente subida de precios respecto a la venta de propiedades. Esto se debe a que a muchas personas les ha surgido la necesidad de comprar viviendas con mayor extensión, ya sea para tener un gran patio que visitar a diario o para agregar espacios de ocio a su hogar.  https://een.es/
